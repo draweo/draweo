@@ -12,9 +12,9 @@ More **strings** than a puppet show, more **loops** than a rollercoaster, more *
 I've spent 15 Years (and counting) in the wine industry, utilising the following skills, which I hope will help me navigate the world of tech too:
 * **Creating training programmes**
 * **Delivering training**, both sales training and product training
-* **B2B Sales** (to both hospitality and retail)
+* **B2B Sales - New business development** 
 * **Sales presentations**
-* **Account management**
+* **Account management and development**
 * **Wine list strategy reviews and sales analysis**
 
 Complementary creative skills and experience include:
